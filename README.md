@@ -10,3 +10,6 @@ Acesse clicando ➡️ [aqui.](https://ricardo-dev-1988.github.io/Projeto-slide-
 <br/><br/>
 ## :bookmark: Layout
 
+![potter 2](https://user-images.githubusercontent.com/93559261/150175547-13501f93-9f0e-4022-b13a-449d6af292a3.png)
+![potter 1](https://user-images.githubusercontent.com/93559261/150175555-065e3984-4062-4279-a289-3f05093cc517.png)
+
